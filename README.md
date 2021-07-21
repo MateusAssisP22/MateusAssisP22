@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MateusAssisP22
 - 👀 Busco os melhores profissionais de TI para atuar nas maiores empresas do Brasil. 
-- 📄 Caso precise de uma forcinha para dar aquele Upgrade no CV, entre em contato comigo. 
+- 📄 Pracisa de uma forcinha para dar aquele Upgrade no  CV? Entre em contato comigo.
 - 📫 Caso tenha interesse em conhecer nossas vagas, envie seu CV para mateus.assis@projeto22.com.br
 
 <!---
